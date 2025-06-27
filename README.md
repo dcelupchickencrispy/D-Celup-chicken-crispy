@@ -1,1 +1,0 @@
-# D-Celup-chicken-crispy
